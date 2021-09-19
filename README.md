@@ -1,2 +1,1 @@
-# Discord-Online-24-7
-คอมมาน ออนไลน์ 24/7 by MeoNz!!
+![logo](https://media.discordapp.net/attachments/863327063150166027/889019552132898836/World_of_Our_Fantasy.gif)
